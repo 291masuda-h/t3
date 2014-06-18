@@ -1,4 +1,1 @@
-ssssssssjnjknfwjnfnnvnvninvkdvv
-vvrvkmvmkmkdmimmoosvlmlmvskvs
-sveomirnvomlskmmflkm;sldmeekmslvirnhglsdn
-jnsunvos
+こんばんは、ハヤシライスになりそうです。
